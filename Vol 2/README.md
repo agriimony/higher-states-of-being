@@ -1,4 +1,4 @@
-# Volume 1
+# Volume 2
 ### Inspiration
 
 Volume 2 takes inspiration from cyberpunk, anime, street fashion
